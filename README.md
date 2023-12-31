@@ -9,7 +9,7 @@ I truly appreciate  the many messages and questions I have received in terms of 
 
 Please Subscribe Our Channel-   [@Bot2Root ] (https://www.youtube.com/bot2root)
 
-Follow  Me On Instagram- @Bot2Root
+Follow  Me On Instagram- [@Bot2Root] (https://www.instagram.com/bot2root/)
 
 Credit:
 ---------------------------------------------
